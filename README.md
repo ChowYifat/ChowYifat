@@ -1,3 +1,3 @@
-# Yifat Chow
+# <center> Yifat Chow
 
 ## Renmin University of China
